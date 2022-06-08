@@ -1,2 +1,2 @@
-# Sinobos Limited is an international exporter
-of polymer raw materials
+# Sinobos Limited is an international exporter of polymer raw materials
+
